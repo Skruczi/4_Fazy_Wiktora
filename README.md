@@ -1,6 +1,6 @@
 "4 Fazy Wiktora" to teoria opisująca ewolucję umysłu i zachowania człowieka w czterech kluczowych etapach.
 
-W pierwszej fazie, zwaniej "Zaśniona Świadomość", umysł jest nieświadomy swojego potencjału, podobny do snu, gdzie brakuje świadomości własnych możliwości.
+W pierwszej fazie, zwanej "Zaśniona Świadomość", umysł jest nieświadomy swojego potencjału, podobny do snu, gdzie brakuje świadomości własnych możliwości.
 
 W drugiej fazie, "Odkrywanie", jednostka zaczyna zdobywać wiedzę i odkrywać własne umiejętności, co prowadzi do wzrostu pewności siebie.
 
